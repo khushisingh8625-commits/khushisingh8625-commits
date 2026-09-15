@@ -1,4 +1,4 @@
-# khushisingh8625-commits
+# harshsingh8625-commits
 My professional profile an web development projects.
 Hi, I'm Harsh Singh 👋
 
